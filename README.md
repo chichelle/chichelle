@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @chichelle but you can call me chelle, or Michelle. 
+- 🏳️‍🌈 My pronouns are She/Her 
+- 🧠 I'm neurodivergent with ADHD. INFP/J The Advocate
+- ♐️ I'm a Sagittarius and a 2/5 sacral generator in HD
+- 👀 I’m interested in learning and mastering languages
+- 🌱 I’m currently learning Java & studying data science
+- 💞️ I’m looking to collaborate on development communities
+- 📫 How to reach me @chelle on Twitter or hello@sprwco.com
+- 💻 Professional bio https://www.linkedin.com/in/michellerandallto/
