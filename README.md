@@ -1,7 +1,0 @@
-- 🫶🏻 Hey I'm Michelle. 
-- 🏳️‍🌈 My pronouns are She/Her 
-- 👀 I’m interested in high-level problem solving
-- 🌱 I’m currently learning Pthyon 
-- 🐿 Looking for new squirrel friends 
-- 📫 Reach me @chelle on Twitter
-- 💻 Professional bio https://www.linkedin.com/in/michellerandallto/
